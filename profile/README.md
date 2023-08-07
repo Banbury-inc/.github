@@ -14,6 +14,6 @@ Research is the heartbeat of Banbury. We invest in comprehensive R&D to uncover 
 Join the Banbury Revolution
 We invite visionaries, innovators, and enthusiasts to join us on this exciting journey. Together, let's shape the future, build a better tomorrow, and leave a lasting legacy for generations to come.
 
-Visit our website www.banburytech.com to learn more about our projects, career opportunities, and how you can be a part of the Banbury revolution!
+Visit our website www.banburyenterprises.com to learn more about our projects, career opportunities, and how you can be a part of the Banbury revolution!
 
 Join Banbury - Where Innovation Meets Impact! 🚀
